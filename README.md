@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... currently no one
 - 📫 How to reach me ... in the email kasperi.a108116@student.winnova.fi
 - 😄 Pronouns: ... he
-- ⚡ Fun fact: ... I'm from Finland
+- ⚡ Fun fact: ... I'm from Finland and I listen to metal music
 
 <!---
 KasperiNN/KasperiNN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
