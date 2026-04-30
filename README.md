@@ -1,7 +1,7 @@
 - 👋 Hi, I'm @KasperiNN
 - 👀 I’m interested in ... just playing
 - 🌱 I’m currently learning ... IT industry
-- 💞️ I’m looking to collaborate on ... currently no one
+- 💞️ I’m looking to collaborate on ... no one. that's quite sad :(
 - 📫 How to reach me ... in the email kasperi.a108116@student.winnova.fi
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... favorite tv show is pasila
