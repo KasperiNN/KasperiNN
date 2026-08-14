@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... no one. that's quite sad :(
 - 📫 How to reach me ... in the email kasperi.a108116@student.winnova.fi
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... favorite tv show is pasila
+- ⚡ Fun fact: ... favorite tv show is Pasila. It's about polices in Finland
 
 <!---
 KasperiNN/KasperiNN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
